@@ -1,2 +1,2 @@
-# The-Prophecy
+# The Prophecy
 creepy ass prophecy
